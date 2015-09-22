@@ -5,3 +5,4 @@
 Junki Kato
 Makie Miyauchi
 ookawa yoshimi
+Hirohisa Yoshikawa
