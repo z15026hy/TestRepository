@@ -3,3 +3,4 @@
 
 【下記に名前を書きましょう】  
 Junki Kato
+Makie Miyauchi
